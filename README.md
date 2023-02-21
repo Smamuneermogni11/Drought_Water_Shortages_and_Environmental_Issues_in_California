@@ -149,8 +149,3 @@ REFERENCE:
 [9] Nuccitelli, D. (2021, June 8). California, 'America's garden,' is drying out " Yale climate connections. Yale Climate Connections. Retrieved April 23, 2022, from https://yaleclimateconnections.org/2021/06/california-americas-garden-is-drying-out/
 [10] Scott, C. (2017, September 28). California climate and health, part I: Drought stirs up trouble F. Healthline. Retrieved April 23, 2022, from https://www.healthline.com/health-news/california-climate-and-health-part-1-drought-stirs-up-trouble-for-states-air-quality-111215#Harsh-Winter
 
-Individual Report: (Muneer)
-
-        My teammates have taught me so much. Members of the team were responsible and enthusiastic participants in the group. The most significant aspect of this team was everyone's mutual respect for one another's viewpoints. My own contribution to this presentation was to work on the analysis of particulate matter PM 2.5, adding information to clarify the idea for better comprehension of the list of objectives, and then on correlation between drought and PM 2.5. We worked on a presentation as a team to discover sources for the information needed for the analysis of drought and PM 2.5 and structured it in a logical order. I appreciate everyone's efforts as a team. 
-Thank you so much professor. I am grateful to take the course with you.
-You are Awesome!
